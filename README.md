@@ -1,3 +1,7 @@
 # karimreyesdiaz.github.io
 
-# Lo que sea
+## Education
+
+## Proffesional Experiencie
+
+## Projects
