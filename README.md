@@ -1,5 +1,3 @@
-# karimreyesdiaz.github.io
-
 ## Education
 
 ## Proffesional Experiencie
